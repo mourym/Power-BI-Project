@@ -1,3 +1,10 @@
+Google Page Speeds Daily Report
+
+<img width="501" alt="image" src="https://github.com/user-attachments/assets/2d571d15-e9a8-4901-a50e-57cbf548a49d">
+
+
+
+
 <img width="616" alt="image" src="https://github.com/mourym/Power-BI-Project/assets/127374025/278f33bd-6842-4667-a313-1c45ab39d245">
 
 
