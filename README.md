@@ -1,3 +1,22 @@
+Digital Management Dashboard
+
+<img width="424" alt="image" src="https://github.com/user-attachments/assets/2874c0ff-66fd-417f-b1be-b11999bb4441" />
+
+<img width="424" alt="image" src="https://github.com/user-attachments/assets/d3d02d5b-5c31-4a21-861b-e6d1512c5de3" />
+
+<img width="418" alt="image" src="https://github.com/user-attachments/assets/0ac381d2-19c3-409c-94bb-1e953af6345d" />
+
+<img width="422" alt="image" src="https://github.com/user-attachments/assets/05077406-980d-45d2-b85a-3acafe6aed80" />
+
+<img width="420" alt="image" src="https://github.com/user-attachments/assets/5f46f470-0485-4840-a7e2-52344b89f4b9" />
+
+<img width="424" alt="image" src="https://github.com/user-attachments/assets/2f9364e9-4c9b-44c0-aae7-332eb288b361" />
+
+
+
+Business Insights 360
+
+
 
 <img width="710" alt="image" src="https://github.com/user-attachments/assets/1b05485e-db30-48c0-af4a-ac3bc943db54">
 
